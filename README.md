@@ -15,3 +15,6 @@
 1. Icynips
 2. Wayneker
 3. BofaDeez
+"Assassumption is the mother of all fuck-ups." - Steven Seagal
+
+"Hello There" - Obi-Wan Kenobi
