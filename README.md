@@ -8,4 +8,5 @@
 
 ## This is where quotes are going to start
 
-"Assassumption is the mother of all fuck-ups." - Steven Seagal
+"Assassumption isthe mother of all fuck-ups." - Steven Seagal
+"quote"
