@@ -8,4 +8,5 @@
 
 ## This is where quotes are going to start
 
-"Assassumption is the mother of all fuck-ups." - Steven Seagal
+"Assassumption is the mother of all fuck-ups." - Steven Seagal"
+"When life gives lemon, make lemon drops" - someone
