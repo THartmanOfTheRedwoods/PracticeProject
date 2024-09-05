@@ -10,3 +10,4 @@
 
 "Assassumption is the mother of all fuck-ups." - Steven Seagal"
 "When life gives lemon, make lemon drops" - someone
+2nd quote will be added here.  
